@@ -1,1 +1,1 @@
-Roćníkový projekt - mobilná aplikácia
+Ročníkový projekt
